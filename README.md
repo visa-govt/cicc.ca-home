@@ -1,0 +1,1 @@
+Methods to Track Your ApplicationOnline Account: Sign in to your IRCC Secure Account or the Permanent Residence Portal to view detailed messages and submitted profiles.The PR/Citizenship Tracker: If you applied for specific permanent resident or citizenship https://visa-govt.github.io/Canada.ca-home-cic-gov/
